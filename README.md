@@ -1,2 +1,2 @@
 # Hiya-Guys
-Looking for Star Trak timelines &amp; Data Core 
+Looking for Star Trek timelines & amp; Data Core 
